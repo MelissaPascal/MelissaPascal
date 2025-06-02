@@ -17,7 +17,7 @@ A Gen Z–focused emotional intelligence engine built with prompt choreography a
 ## 📬 Connect with Me  
 - [Substack – Sacred Strategy](https://sacredstrategy.substack.com)  
 - [LinkedIn](https://www.linkedin.com/in/melissapascal)  
-- [Email](mailto:pascal.melissa@gmail.com)
+- [Email](mailto:melissa@pascalsbakery.com)
 
 Let’s collaborate on frameworks, licensing, or future-of-education pilots.
 
